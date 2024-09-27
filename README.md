@@ -1,4 +1,4 @@
-# CIS350-HW2--Brasfield-
+# CIS350-HW2--Brasfield
 # Paige Brasfield
 - interests are hanging out with friends
 - going on walks
